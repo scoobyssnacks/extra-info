@@ -1,6 +1,7 @@
 ## ㅤㅤ✦ㅤㅤextra  info
 𓂃ㅤㅤㅤxtraㅤㅤinfoㅤ♡
 
-ㅤㅤ
 
-ㅤㅤㅤ[![Discord Presence](https://lanyard.cnrad.dev/api/:1025066976785211572)](https://discord.com/users/:1025066976785211572)
+ㅤㅤ
+ㅤㅤㅤ
+ㅤㅤㅤdni [one wheat mark](https://one-wheat-mark.fandom.com/wiki/One_wheat_mark_Wiki) fans
